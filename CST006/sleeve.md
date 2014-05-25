@@ -11,6 +11,8 @@ towers... let's build fallen cathedrals + make impractical plans...
 interested parties should contact us: P.o. box 2, Place-du-Parc,
 Montréal, québec, H2W 2N9, Kanada...
 
+---
+
 4\. 27 JEREMIAH
 
 23 I beheld the earth,  
