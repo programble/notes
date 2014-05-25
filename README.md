@@ -1,6 +1,6 @@
 # Album Notes
 
-Transcriptions of album notes & lyrics.
+Transcriptions of album inserts & packaging.
 
 ## Organization
 
