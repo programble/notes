@@ -55,3 +55,27 @@
 > TESTING - 6 DAYS A WEEK
 
 ### [Sleeve 2](sleeve2.md)
+
+### Label 1
+
+> (one) storm b/w static
+
+(image)
+
+> LAVATORY CORRIDOR CELL  
+> LAVATORY CORRIDOR CELL  
+> LAVATORY CORRIDOR CELL  
+> LAVATORY HALL
+
+### Label 2
+
+> (three) sleep b/w antennas to heaven...
+
+(image)
+
+> (four)  
+> PUNISHMENT  
+> PC PC PC PC PC PC PC PC PC  
+> ISOLATION  
+> SC SC SC SC  
+> WK WK WK WK
